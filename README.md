@@ -1,1 +1,0 @@
-# fomopricacy.github.io
